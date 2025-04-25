@@ -1,0 +1,1 @@
+# -IA-inversi-n-de-impacto-transformador
